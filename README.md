@@ -12,5 +12,6 @@
 ## 个人账号
 
 - [哔哩哔哩](https://space.bilibili.com/1344687531)
+- [知乎](https://www.zhihu.com/people/86-59-11-86)
 - [抖音](https://www.douyin.com/user/MS4wLjABAAAALISPuOqRQfZhQWBP5e3YEDR2xSTwwNYPWie4zvfOvlU)
 - [微博](https://weibo.com/u/7263553536)
